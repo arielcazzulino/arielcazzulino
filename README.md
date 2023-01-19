@@ -15,7 +15,9 @@ Ante la necesidad de profesionalizarme aún más y poder dedicarme a tiempo comp
 Además de lo ya mencionado, soy estudiante de tercer año de la Lic. en Psicología (UBA), acompañante terapéutico y tengo formación en primeros auxilios psicológicos, lo cual me brinda herramientas valiosas para comunicarme y negociar con mis clientes.
 </p>
 
-- 📫 Como contactarme: **arielcazzulino@gmail.com**
+<h4>Como contactarme:</h4>
+- 📫 Mail: **arielcazzulino@gmail.com**
+- 📱 Llamada o Whatsapp: **+54 3442 62-1983**
 
 <h3 align="left">Conectate conmigo:</h3>
 <p align="left">
