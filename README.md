@@ -17,7 +17,6 @@ Además de lo ya mencionado, soy estudiante de tercer año de la Lic. en Psicolo
 
 <h4>Como contactarme:</h4>
 📫 arielcazzulino@gmail.com </br>
-📱 +54 3442 62-1983
 
 <h3 align="left">Conectate conmigo:</h3>
 <p align="left">
